@@ -1,4 +1,3 @@
 ![](https://komarev.com/ghpvc/?username=antonkomarev&color=000000&label=۶ৎ)
 
-![image](https://github.com/user-attachments/assets/e5db5901-368a-49dc-ad25-3b7632dbd596)
-
+[![idk click??](https://github.com/user-attachments/assets/af34a0f6-1c6e-4774-b2b2-4f38a00cd521)](https://rentry.co/ciarling)
