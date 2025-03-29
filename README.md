@@ -1,5 +1,6 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=antonkomarev&color=b5b5b5&label=۶ৎ)
 
 
-[![mywife](https://github.com/user-attachments/assets/0933893c-d0a0-4309-b26f-3e55fcd00fa7)](https://rentry.co/victimising)
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bebas+Neue&pause=100&color=B5B5B5&width=435&lines=Oh+no+..m+my+wifeh.....+MY+WIFE%3F%3F%3F%3F;MMMMMMYYYYYY+WWWWWWWIIIIIFFFFEEEEEEEEEEEEEEEEEEEEEEEEEE;UEE%F0%9F%98%AD%F0%9F%A5%BA%F0%9F%92%A7Eu%F0%9F%92%A7%F0%9F%92%A7E+E+%F0%9F%98%AD%F0%9F%98%AD+E+EUE%F0%9F%A5%BA%F0%9F%A5%BA%F0%9F%98%ADUUUUE%F0%9F%98%AD%F0%9F%A5%BA%F0%9F%92%A7%F0%9F%A5%BA%F0%9F%98%ADue%F0%9F%92%A7ee%F0%9F%98%AD%F0%9F%A5%BA%F0%9F%92%A7ue%F0%9F%A5%BAe+e+e%F0%9F%98%AD+e%F0%9F%92%A7%F0%9F%A5%BA%F0%9F%98%AD+Uueuuue%F0%9F%92%A7%F0%9F%92%A7ue%F0%9F%98%AD%F0%9F%A5%BAee+e%F0%9F%A5%BA%F0%9F%A5%BA%F0%9F%98%ADeUE%F0%9F%92%A7%F0%9F%A5%BA%F0%9F%92%A7EEE%F0%9F%92%A7%F0%9F%92%A7%F0%9F%98%ADU+E%F0%9F%A5%BA%F0%9F%98%AD+EE+H%F0%9F%92%A7%F0%9F%A5%BA%F0%9F%98%AD+E+EUU%F0%9F%92%A7%F0%9F%A5%BA%F0%9F%98%ADUUEHH%F0%9F%A5%BA%F0%9F%92%A7%F0%9F%98%ADEUEH%F0%9F%A5%BA%F0%9F%98%AD%F0%9F%92%A7%F0%9F%92%A7ue+e%F0%9F%98%AD%F0%9F%98%AD+eeeeee%F0%9F%92%A7%F0%9F%92%A7%F0%9F%92%A7uu%F0%9F%A5%BA%F0%9F%98%ADhh%F0%9F%98%AD%F0%9F%A5%BA+uUEEE%F0%9F%A5%BA%F0%9F%98%AD%F0%9F%92%A7uuuue%F0%9F%92%A7%F0%9F%98%AD%F0%9F%A5%BA%F0%9F%98%AD)](https://git.io/typing-svg)
+[![1000002393](https://github.com/user-attachments/assets/1e0ecec5-eaa3-42dd-ba88-95fc76cc0ac0)](https://rentry.co/victimising)
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bebas+Neue&pause=1000&color=303337&width=435&lines=Hi+%2C+I+don't+think+I+have+a+perfect+quote+for+him..+bye..)](https://git.io/typing-svg)
