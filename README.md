@@ -1,5 +1,6 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=antonkomarev&color=b5b5b5&label=۶ৎ)
 
 
-[![1000002788](https://github.com/user-attachments/assets/2203e522-b572-40d0-909b-7614b2ad91c2)
+[![1000002793](https://github.com/user-attachments/assets/10dda8f7-5a5a-4cbe-9aba-30bcf54fa6b7)
 ](https://rentry.co/victimising)
+click faggot
